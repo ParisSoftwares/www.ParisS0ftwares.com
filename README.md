@@ -1,2 +1,2 @@
-# www.ParisS0ftwares.com
+# www.ParisSoftwares.com
 Website
